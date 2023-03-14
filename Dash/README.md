@@ -1,1 +1,1 @@
-Graphique pour la presentation du projet de campagne marketing
+Graphiques pour la présentation du projet de campagne marketing
